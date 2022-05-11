@@ -1,4 +1,4 @@
-# encyclopedia-retardicus
+# encyclopedia-retardica
 the austerlitz of the kcis.xyz series
 
 
