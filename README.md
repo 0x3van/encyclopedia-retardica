@@ -5,4 +5,4 @@ the austerlitz of the kcis.xyz series
 true art
 
 
-(UPDATE 5/23/2022) obselete as of now
+(UPDATE 5/23/2022) obselete as of now. http://encyclopediaretardica.wiki
